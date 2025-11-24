@@ -1,0 +1,1 @@
+# Fotosizer-Professional-Edition-Latest-Patch
